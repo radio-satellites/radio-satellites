@@ -1,4 +1,4 @@
-### Student by day, frantic engineer by night
+### Student by day, frantic hobbyist engineer by night
 
 - 🔭 I write random things occasionally that help me
 - 🎈High altitude balloons!
