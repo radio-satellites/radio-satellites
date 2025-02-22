@@ -2,6 +2,6 @@
 
 - 🔭 I write random things that interest me
 - 🎈High altitude balloons!
-- 📻 Amateur radio operator VE3SVF
+- 📻 Amateur radio operator (callsign VE3SVF)
 - ✉ How to reach me: [callsign] (at) gmail.com
 
