@@ -1,4 +1,4 @@
-### High school student by day, hobbyist engineer by night 🇨🇦
+### 🇨🇦 High school student by day, hobbyist engineer by night 
 
 - 🔭 I write random things that interest me
 - 🎈High altitude balloons!
